@@ -1,1 +1,0 @@
-stary kuda-to propal
